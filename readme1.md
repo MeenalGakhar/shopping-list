@@ -1,3 +1,6 @@
 - Greek Yogurt
 - Blackberries
 - Honey
+- Walnuts
+- Nutritional Yeast
+- Powdered jaggery
